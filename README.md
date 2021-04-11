@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @holkabobra1
-- 👀 I’m interested in asses, programming, poker, music, guitar, rocksmith2014, csgo
+- 👀 I’m interested in BOOBA, programming, poker, music, guitar, rocksmith2014, csgo
 - 🌱 I’m currently learning js, react
 - 💞️ I’m looking to collaborate on cool projects
 - 📫 How to reach me: telegram - @holkabobra.1
